@@ -1,0 +1,2 @@
+# UAS-PENGOLAHAN-CITRA
+Nama : Faisal Arya Yudanto 312210555
